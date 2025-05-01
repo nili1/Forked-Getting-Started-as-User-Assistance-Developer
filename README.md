@@ -13,3 +13,5 @@ For more information, see www.jpdocu.com.
 ciel<sup>2</sup> jockey
 
 ![post this neco arc when they least expect it.](https://tr.rbxcdn.com/180DAY-c663e7fa8aa135efd5cf8fa30ab06d83/420/420/Hat/Webp/noFilter)
+
+![Hisui secret art technique](https://c.tenor.com/EMUotfLxjjsAAAAd/tenor.gif)
