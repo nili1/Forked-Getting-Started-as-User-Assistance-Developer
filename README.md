@@ -1,4 +1,4 @@
-# hello-world
+# hello-world-welcome-to-my-meme-journal
 This is the place where the students of Jordan Stanchev & JPDocu School for Technical Writing can contribute their UA assets: 
 - software documentation, 
 - instructional videos, 
